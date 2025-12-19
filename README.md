@@ -1,2 +1,4 @@
 # taildovaz.github.io
-A personal and professional website
+Liat Zavodivker: Energy Policy Researcher 
+
+contact me lzavod at gmail dot com
